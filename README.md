@@ -1,2 +1,2 @@
-The perfecr day
+The perfect day
 
